@@ -1,2 +1,3 @@
 # 335-Projects
-fo sho 
+Follow my linkedin: 
+https://www.linkedin.com/in/kelvinyu01/
